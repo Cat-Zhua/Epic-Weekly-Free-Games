@@ -21,6 +21,15 @@
     ![Severed Steel](https://cdn1.epicgames.com/offer/5db7394e65044dd1bb083ee983e2b3a5/EGS_SeveredSteel_GreylockStudio_S1_2560x1440-7563487f2c1135a79b72a4d2c198d544)
 
 
+  - ### [Europa Universalis IV](https://store.epicgames.com/p/europa-universalis-iv "Europa Universalis IV")
+
+    原价: CN¥148.00
+
+    购买链接: [https://store.epicgames.com/p/europa-universalis-iv](https://store.epicgames.com/p/europa-universalis-iv "Europa Universalis IV")
+
+    ![Europa Universalis IV](https://cdn1.epicgames.com/salesEvent/salesEvent/EGS_EuropaUniversalisIV_ParadoxDevelopmentStudioParadoxTinto_S3_2560x1440-aa3002ec221d43dcd7e49f5458e74766)
+
+
   - ### [Train Valley 2](https://store.epicgames.com/p/train-valley-2-3606da "Train Valley 2")
 
     原价: CN¥47.00
@@ -49,6 +58,15 @@
     购买链接: [https://store.epicgames.com/p/loop-hero](https://store.epicgames.com/p/loop-hero "Loop Hero")
 
     ![Loop Hero](https://cdn1.epicgames.com/ff50f85ed609454e80ac46d9496da34d/offer/EGS_TheLichhasthrowntheworldintoatimelessloop_FourQuarters_S1-2560x1440-dd971b1a2d79b2984c22a3b7c66c60da.jpg)
+
+
+  - ### [Europa Universalis IV](https://store.epicgames.com/p/europa-universalis-iv "Europa Universalis IV")
+
+    原价: CN¥148.00
+
+    购买链接: [https://store.epicgames.com/p/europa-universalis-iv](https://store.epicgames.com/p/europa-universalis-iv "Europa Universalis IV")
+
+    ![Europa Universalis IV](https://cdn1.epicgames.com/salesEvent/salesEvent/EGS_EuropaUniversalisIV_ParadoxDevelopmentStudioParadoxTinto_S3_2560x1440-aa3002ec221d43dcd7e49f5458e74766)
 
 
   - ### [Bloons TD 6](https://store.epicgames.com/p/bloons-td-6-bf95a0 "Bloons TD 6")
