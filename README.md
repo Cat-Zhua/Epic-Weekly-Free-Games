@@ -30,23 +30,14 @@
     ![Monument Valley](https://cdn1.epicgames.com/spt-assets/e56a7411805046d3b5b7253a6e4e0faa/monument-valley-1gys5.jpg)
 
 
-  - ### [Paradise Killer](https://store.epicgames.com "Paradise Killer")
-
-    原价: 0
-
-    购买链接: [https://store.epicgames.com](https://store.epicgames.com "Paradise Killer")
-
-    ![Paradise Killer](https://cdn1.epicgames.com/offer/d5241c76f178492ea1540fce45616757/Dec22_giveaway_2560x1440_2560x1440-0165246ad3c9454e887f576036328add)
-
-
 - ## 下周限免
 
 
-  - ### [Mystery Game 7](https://store.epicgames.com "Mystery Game 7")
+  - ### [Mystery Game 8](https://store.epicgames.com "Mystery Game 8")
 
     原价: 0
 
-    购买链接: [https://store.epicgames.com](https://store.epicgames.com "Mystery Game 7")
+    购买链接: [https://store.epicgames.com](https://store.epicgames.com "Mystery Game 8")
 
-    ![Mystery Game 7](https://cdn1.epicgames.com/offer/d5241c76f178492ea1540fce45616757/Holiday25_FreeGames_Teaser_2560x1440_2560x1440-012542ce76be0f7521af765ba97d3453)
+    ![Mystery Game 8](https://cdn1.epicgames.com/offer/d5241c76f178492ea1540fce45616757/Holiday25_FreeGames_Teaser_2560x1440_2560x1440-012542ce76be0f7521af765ba97d3453)
 
