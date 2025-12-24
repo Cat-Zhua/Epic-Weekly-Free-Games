@@ -30,14 +30,23 @@
     ![Monument Valley](https://cdn1.epicgames.com/spt-assets/e56a7411805046d3b5b7253a6e4e0faa/monument-valley-1gys5.jpg)
 
 
-- ## 下周限免
-
-
-  - ### [Mystery Game 8](https://store.epicgames.com "Mystery Game 8")
+  - ### [The Callisto Protocol](https://store.epicgames.com "The Callisto Protocol")
 
     原价: 0
 
-    购买链接: [https://store.epicgames.com](https://store.epicgames.com "Mystery Game 8")
+    购买链接: [https://store.epicgames.com](https://store.epicgames.com "The Callisto Protocol")
 
-    ![Mystery Game 8](https://cdn1.epicgames.com/offer/d5241c76f178492ea1540fce45616757/Holiday25_FreeGames_Teaser_2560x1440_2560x1440-012542ce76be0f7521af765ba97d3453)
+    ![The Callisto Protocol](https://cdn1.epicgames.com/offer/d5241c76f178492ea1540fce45616757/Dec24_giveaway_2560x1440_2560x1440-c86b6fef71f542ec96a6b712a2a85c1c)
+
+
+- ## 下周限免
+
+
+  - ### [Mystery Game 9](https://store.epicgames.com "Mystery Game 9")
+
+    原价: 0
+
+    购买链接: [https://store.epicgames.com](https://store.epicgames.com "Mystery Game 9")
+
+    ![Mystery Game 9](https://cdn1.epicgames.com/offer/d5241c76f178492ea1540fce45616757/Holiday25_FreeGames_Teaser_2560x1440_2560x1440-012542ce76be0f7521af765ba97d3453)
 
